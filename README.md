@@ -7,3 +7,4 @@ sedemikian rupa sampai menjadi sebuah bentukan citra yang dapat dipahami oleh ma
 - Disitu terdapat project saya
 
 # Cara 2 :
+- 
